@@ -1,1 +1,0 @@
-# TiOK_aplication
